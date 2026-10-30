@@ -1,4 +1,3 @@
- <sub>[СТИМ](https://steamcommunity.com/profiles/76561199868745199/) ㅤ###ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ㅤ       ㅤㅤㅤㅤ  <img src="https://64.media.tumblr.com/c701c4eb0b839cdd13e0e584213fd608/b2710e149482b04e-8a/s400x600/3a2b902378e1453637892d4bd2ff4590858c4851.pnj"  height="300" center>
