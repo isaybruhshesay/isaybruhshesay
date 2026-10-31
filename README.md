@@ -4,9 +4,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤммммм привет ммм ммююммм ммм
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ㅤ       ㅤㅤㅤㅤ<img src="https://i.pinimg.com/736x/10/76/92/107692a5e1267060376ad49fa002ff15.jpg"  height="300" center>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ     ㅤ       ㅤㅤㅤ<img src="https://i.pinimg.com/736x/10/76/92/107692a5e1267060376ad49fa002ff15.jpg"  height="300" center>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤintj sp5w4 451 lfev ㅤㅤ ㅤㅤ<img src="https://64.media.tumblr.com/4fb1e1ef68110d696f9f4761c3634488/3432e847ec819b1c-9d/s250x400/95f789bb4377406c581f6e9da9cb5d861a7979fe.gifv"  height="300" center>ㅤㅤㅤㅤㅤㅤㅤ17teenㅤshe/he 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤintj sp5w4 451 lfev ㅤㅤ ㅤ   <img src="https://64.media.tumblr.com/4fb1e1ef68110d696f9f4761c3634488/3432e847ec819b1c-9d/s250x400/95f789bb4377406c581f6e9da9cb5d861a7979fe.gifv"  height="300" center>ㅤㅤㅤㅤㅤ17teenㅤshe/he 
 
 
 
